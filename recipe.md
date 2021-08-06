@@ -1,0 +1,1 @@
+Mix flour, milk, sugar, and chocolate-chips, Put the batter in the oven.
